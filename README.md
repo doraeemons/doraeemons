@@ -1,5 +1,7 @@
 # `HALEE ──★ ˙ ̟SHOW ME YOUR HEART?`
 ![souleater15](https://github.com/doraeemons/cool-kids/assets/130951293/8e3d5915-b815-49d8-9fe6-ba6f55db77b9)
+![image](https://github.com/doraeemons/doraeemons/assets/130951293/136eb043-471a-4bee-a9b3-fc8794771881)
+![image](https://github.com/doraeemons/doraeemons/assets/130951293/c7e0180f-7d1e-42b6-a89e-0c9c690cce5e)
 ![strawpage14](https://github.com/doraeemons/cool-kids/assets/130951293/b5a6a541-0755-4085-a978-ed4040d003cc)
 ![image](https://github.com/doraeemons/cool-kids/assets/130951293/bccdae35-95db-43c6-a6a2-e16791e19c75)
 ![image](https://github.com/doraeemons/cool-kids/assets/130951293/0e52747f-cb01-4ff6-a7fe-ab1875967957)
@@ -42,3 +44,7 @@
 ![image](https://github.com/doraeemons/cool-kids/assets/130951293/623b9139-258d-4d8b-bb97-719e2e4e306e)
 ![image](https://github.com/doraeemons/cool-kids/assets/130951293/b5aa2038-8d8a-40c2-a3ba-664972d266a4)
 ![image](https://github.com/doraeemons/doraeemons/assets/130951293/6eb39395-d186-418a-bf88-ca96370893f1)
+![image](https://github.com/doraeemons/doraeemons/assets/130951293/2bf97b97-6acb-430d-b585-9a67ae97b517)
+![image](https://github.com/doraeemons/doraeemons/assets/130951293/e133677e-1a24-4022-ae80-f3a6b6778327)
+![image](https://github.com/doraeemons/doraeemons/assets/130951293/957930de-4a96-4151-9dd2-8a98c27e03ad)
+
