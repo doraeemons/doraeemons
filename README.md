@@ -9,6 +9,8 @@
 ![image](https://github.com/doraeemons/cool-kids/assets/130951293/b393ee60-d708-4196-aace-b8dbf443ef6c)
 ![image](https://github.com/doraeemons/cool-kids/assets/130951293/3486eea0-8556-427a-9a2e-4a13ae597c46)
 ![image](https://github.com/doraeemons/cool-kids/assets/130951293/af3e866b-850d-42ee-ac8d-37e510ab247a)
+![image](https://github.com/doraeemons/doraeemons/assets/130951293/197f0db8-9699-4bf2-b612-6d38c433b3df)
+
 ![image](https://github.com/doraeemons/cool-kids/assets/130951293/42068840-3e45-462f-86cd-97e94718e378)
 ![image](https://github.com/doraeemons/cool-kids/assets/130951293/aeb16efa-636c-4dba-876d-f3eecf1c635f)
 ![image](https://github.com/doraeemons/cool-kids/assets/130951293/7f86a24a-149e-44b2-a977-47d794bebe97)
