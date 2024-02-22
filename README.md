@@ -1,5 +1,6 @@
 # `HALEE ──★ ˙ ̟SHOW ME YOUR HEART?`
-![souleater15](https://github.com/doraeemons/cool-kids/assets/130951293/8e3d5915-b815-49d8-9fe6-ba6f55db77b9)
+
+![image](https://github.com/doraeemons/doraeemons/assets/130951293/0bbc4849-0c0d-466d-ae3f-1cfb4cb852ef)
 ![image](https://github.com/doraeemons/doraeemons/assets/130951293/136eb043-471a-4bee-a9b3-fc8794771881)
 ![image](https://github.com/doraeemons/doraeemons/assets/130951293/c7e0180f-7d1e-42b6-a89e-0c9c690cce5e)
 ![strawpage14](https://github.com/doraeemons/cool-kids/assets/130951293/b5a6a541-0755-4085-a978-ed4040d003cc)
