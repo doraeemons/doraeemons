@@ -1,6 +1,9 @@
 # `HALEE ──★ ˙ ̟SHOW ME YOUR HEART?`
 ![image](https://github.com/doraeemons/doraeemons/assets/130951293/0bbc4849-0c0d-466d-ae3f-1cfb4cb852ef)
 
+^ the movie this is from is the wolf of wall street! ok stop asking me now please love u![image](https://github.com/doraeemons/doraeemons/assets/130951293/c348a876-4511-4201-8fea-b30a258de98f)
+
+
 ![image](https://github.com/doraeemons/doraeemons/assets/130951293/fe2f4d0c-640c-4693-9ed8-c6cf563545b8)
 ![image](https://github.com/doraeemons/doraeemons/assets/130951293/99948637-106f-4c08-8aef-c6c4ef2c8dd4)
 ![strawpage14](https://github.com/doraeemons/cool-kids/assets/130951293/b5a6a541-0755-4085-a978-ed4040d003cc)
