@@ -1,7 +1,7 @@
 # `HALEE ──★ ˙ ̟SHOW ME YOUR HEART?`
-![image](https://github.com/doraeemons/doraeemons/assets/130951293/0bbc4849-0c0d-466d-ae3f-1cfb4cb852ef)
+![image](https://4kwallpapers.com/images/wallpapers/dandadan-key-art-3440x1440-19468.jpg)
 
-^ the movie this is from is the wolf of wall street! ok stop asking me now please love u![image](https://github.com/doraeemons/doraeemons/assets/130951293/c348a876-4511-4201-8fea-b30a258de98f)
+
 
 
 ![image](https://github.com/doraeemons/doraeemons/assets/130951293/fe2f4d0c-640c-4693-9ed8-c6cf563545b8)
